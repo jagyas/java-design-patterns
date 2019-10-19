@@ -2,8 +2,8 @@
 
 ![](.gitbook/assets/artificial-intelligence-astronomy-machine-learning-73910-1.jpg)
 
-|  | dffsfsdf |
+| sdcsdcsd | dffsfsdf |
 | :--- | :---: |
-|  b nb ![](.gitbook/assets/artificial-intelligence-astronomy-machine-learning-73910-1.jpg)  | zczz |
-|  |  |
+|  $$a = b$$  $$a^2 = b^2$$ b nb ![](.gitbook/assets/artificial-intelligence-astronomy-machine-learning-73910-1.jpg)  | zczz |
+| svfvd |  |
 
